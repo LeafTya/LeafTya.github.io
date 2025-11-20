@@ -1,3 +1,3 @@
 # LeafTya's Portfolio
 
-Welcome! Work in progress.
+Welcome!  Please feel free to stick around.
